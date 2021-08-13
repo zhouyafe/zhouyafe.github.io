@@ -6,6 +6,6 @@
 
 爱好是打篮球，下面这张是我的照片
 
- ![1]: (https://www.feige123.top/usr/uploads/2021/08/3883659919.jpg)
-  
-  好了，我介绍完了
+![真帅](https://www.feige123.top/usr/uploads/2021/08/3883659919.jpg)
+
+好了，我介绍完了
